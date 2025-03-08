@@ -1,1 +1,2 @@
 # Purple team repository
+https://docs.google.com/presentation/d/1pznENvI8TOMDClAlgz2-DDAflmplYPto3szolmaOWzY/edit#slide=id.p1
